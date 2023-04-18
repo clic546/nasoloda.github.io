@@ -1,1 +1,0 @@
-# nasoloda.github.io
